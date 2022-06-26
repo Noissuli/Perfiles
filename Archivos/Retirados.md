@@ -1,3 +1,3 @@
 # Trascendentes retirados >:0
 
-- - [Volver](indice.md)
+- - [Volver](../README.md)

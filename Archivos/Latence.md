@@ -1,4 +1,4 @@
 # Trascendentes de Latence
 
 
-- - [Volver](indice.md)
+- - [Volver](../README.md)
