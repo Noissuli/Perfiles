@@ -1,3 +1,0 @@
-# Trascendentes
-
-- [Edmond](Edmond.md)
