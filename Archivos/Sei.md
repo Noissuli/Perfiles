@@ -19,4 +19,4 @@
 > 
 > - Dato curioso: Desde que Inno ocupa su tiempo libre, Sei ya no viene tanto a visitar la fabrica de constructos ┻━┻ ヘ╰( •̀ε•́ ╰)
 >
-> > [Volver](Facción.md)
+> > [Volver](Utopía.md)
