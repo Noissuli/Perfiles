@@ -7,7 +7,7 @@
 > 
 > - Peso: 40 kilogramos
 > 
-> - Raza: %%%%%%%% la maquina pone eso cuando pregunto por su raza, este error ocurre con otros trascendentes tambien, probablemente algún efecto de la trascendencia en su genetica? digamos que humano pequeño.
+> - Raza: %%%%%%%% la maquina pone eso cuando pregunto por su raza, este error ocurre con otros trascendentes también, probablemente algún efecto de la trascendencia en su genetica? digamos que humano pequeño.
 > 
 > - Descripción física: Es un enanito tonificado, es pequeño y de cabello blanco picudo que como el mio, fue blanqueado por la trascendencia! sus ojos son azul rayo, tiene algunas cicatrices por no restringirse mucho con los sellos cuando llegó, y lanzarse contra cosas muy peligrosas para su propio bien. Su cuerpo le permite pasar por lugares realmente estrechos! y cuando se convierte en un rayo, su inclinación tiende hacia la derecha, se compone de un color blanco con contorno azul, y a petición de Iõ, en general tiene una apariencia bastante "Combatible", para los interesados!  
 > 
