@@ -18,5 +18,5 @@
 > - Historia:  
 > 
 > - Dato curioso: 
-
-[Volver](../README.md)
+>
+> > [Volver](Facción.md)
