@@ -18,5 +18,5 @@
 > - Historia: June vivió una vida normal gran parte de su vida, siempre fue la mejor en todo lo que hacía, siempre fue muy estudiosa y muy disciplinada, al punto en que, cuando un espíritu se apareció en su instituto, reaccionó sospechosamente rápido a la existencia de los fantasmas, arrojó un lápiz para comprobar que le atravesaba, encendió la luz de la habitación para verificar que no fuese una ilusión óptica, cerró la puerta tras de sí y tocó la alarma de incendios para ayudar a evacuar a los estudiantes. Para cuando Nadine había llegado a la escena, no había nadie al interior del edificio, no solo eso, June le identificó casi al instante como alguien que tenía que ver con el problema, aún con su percepción afectada por el Opus Finale, Gracias a ella todo se resolvió sin problemas. Cuando se le explicó todo lo que ocurre en nuestro mundo, ella decidió por voluntad propia hacerse trascendente, siempre y cuando pudiese continuar sus estudios mientras trabajaba para la organización. 
 > 
 > - Dato curioso: Según June misma, no siente atracción romántica por nadie, sin embargo, si se le fuesen a declarar, habría que presentar un ensayo de 10 páginas mínimo sobre los beneficios de entablar una relación, este ensayo sería revisado tanto por ella como sus padres, y en base al promedio de sus tres calificaciones, ¡June podría aceptar tener un romance contigo! (¡que ofertón!)
-
-[Volver](indice.md)
+>
+> > [Volver](Alice.md)

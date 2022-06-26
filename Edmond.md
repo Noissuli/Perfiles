@@ -18,5 +18,5 @@
 > - Historia: Desde que llegué a la organización que he hecho maravilla tras maravilla, Primero, cree el Opus Finale, la maquina que nos permite vigilar la aparición de demonios y espíritus a partir de la percepción humana en su totalidad, luego presté mis servicios para crear constructos semi-autosuficientes que se han extendido por todo el mundo no conocido por los seres humanos fuera de ciudades al tanto de la espiritualidad de la realidad, desde maquinas que construyen a maquinas que sienten y acompañan (difícilmente considerables solo maquinas!). He destinado también mis esfuerzos en crear maquinas que extraigan y preparen los varios materiales útiles para la organización, como podrían ser los papeles de sellos, ¡o el metal utilizado para los armamentos preventivos en caso de invasiones a gran escala! Prácticamente todo nuestro actual ejercito está hecho de mis constructos, sería genial verlos en acción un día, pero creo que es mejor que se queden agarrando el polvo. 
 > 
 > - Dato curioso: La gente suele decir que mi historia es muy triste, ¡pero ya la leíste arriba! Soy genial >:b 
-
-[Volver](indice.md)
+>
+> > [Volver](Utopía.md)
