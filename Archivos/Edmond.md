@@ -21,6 +21,6 @@
 >
 > - representación grafica:
 >
-> <img src="./Dibujos/Edmond.png" width="80%">
+> <img src="./Dibujos/Edmond.png" width="100%">
 >
 > > [Volver](Utopía.md)
