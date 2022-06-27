@@ -19,4 +19,8 @@
 > 
 > - Dato curioso: La gente suele decir que mi historia es muy triste, ¡pero ya la leíste arriba! Soy genial >:b 
 >
+> - representación grafica:
+>
+> <img src="./Dibujos/Edmond.png" width="100%">
+>
 > > [Volver](Utopía.md)
