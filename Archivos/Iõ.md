@@ -19,4 +19,8 @@
 > 
 > - Dato curioso: Iõ resiste aproximadamente 30 minutos pensando racionalmente antes de que su cabeza se canse y solo piense en pelear, nisiquiera Utopía puede ayudarle con eso, aunque parece contento siendo un idiota electrizado! (editado a razón de que no me pareció tan curioso el dato) También, como todos ya sabemos, se suele escapar cuando le dejan libre fuera de la estructura o lugar designado para que espere sus misiones, Adel, Euna, y La todopoderosa Edmond son los unicos que pueden atraparlo! Hay quienes piensan que Iõ tambien puede entrar en frenesí, sin embargo, ¡no tenemos pruebas empiricas de ello! y sinceramente, no me importa lo suficiente como para investigarlo >:b, Croix dice que no tiene esa capacidad según la información que le otorga su habilidad.
 >
+> - representación grafica:
+>
+> <img src="./Dibujos/Io.png" width="100%">
+>
 > > [Volver](Latence.md)

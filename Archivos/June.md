@@ -19,4 +19,8 @@
 > 
 > - Dato curioso: Según June misma, no siente atracción romántica por nadie, sin embargo, si se le fuesen a declarar, habría que presentar un ensayo de 10 páginas mínimo sobre los beneficios de entablar una relación, este ensayo sería revisado tanto por ella como sus padres, y en base al promedio de sus tres calificaciones, ¡June podría aceptar tener un romance contigo! (¡que ofertón!)
 >
+> - representación grafica:
+>
+> <img src="./Dibujos/June.png" width="100%">
+>
 > > [Volver](Alice.md)
