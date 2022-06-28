@@ -9,7 +9,7 @@
 > 
 > - Raza: Humana de las tiernitas
 > 
-> - Descripción física: Kafka es pequeña y atletica, muy muy agil! su cabello es largo y negro, y su flequillo cubre sus ojos toooodo el tiempo, al punto en que se acostumbró a vivir sin su vida, a efectos practicos siendo una persona ciega. Kafka no usa sostén, por lo que no tiene copa. sin embargo, a vista, puedo inferir que debe tener copa B. (de las chikitas)
+> - Descripción física: Kafka es pequeña y atletica, muy muy agil! su cabello es largo y negro, y su flequillo cubre sus ojos toooodo el tiempo, al punto en que se acostumbró a vivir sin su vista, a efectos practicos siendo una persona ciega. Kafka no usa sostén, por lo que no tiene copa. sin embargo, a vista, puedo inferir que debe tener copa B. (de las chikitas)
 > 
 > - Descripción psicológica: Kafka es una chica animada, amable, incapaz de medir el espacio personal, muy tocona y un 7/10 en la escala de curiosidad. Cuando se pone seria, es bastante comprensiva, y muy inteligente, sin embargo, da los peores consejos de toda la organización, consejos que a veces desafían cualquier tipo de logica o respecto por las leyes del hombre y de dios. 
 > 
