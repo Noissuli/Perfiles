@@ -1,5 +1,5 @@
 ## Adel
-> - Nombre: Adel Amsalem (Su apellido significa "buscador de paz" literalmente (´ε｀ )???)
+> - Nombre: Adel Amsalem (Su apellido significa "buscador de paz" lit (´ε｀ )???)
 > 
 > - Edad: 43 años y bastante joven se vé >:C
 > 
