@@ -23,6 +23,6 @@
 >
 > - representación grafica:
 >
-> <img src="./Dibujos/adel.png" width="100%">
+> <img src="./Dibujos/Adel.png" width="100%">
 >
 > > [Volver](Facción.md)
