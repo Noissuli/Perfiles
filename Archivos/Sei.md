@@ -19,4 +19,8 @@
 > 
 > - Dato curioso: Desde que Inno ocupa su tiempo libre, Sei ya no viene tanto a visitar la fabrica de constructos ┻━┻ ヘ╰( •̀ε•́ ╰)
 >
+> - representación grafica:
+>
+> <img src="./Dibujos/Sei.png" width="100%">
+>
 > > [Volver](Utopía.md)
