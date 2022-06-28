@@ -19,4 +19,8 @@
 > 
 > - Dato curioso: 
 >
+> - representación grafica:
+>
+> <img src="./Dibujos/.png" width="100%">
+>
 > > [Volver](Facción.md)
