@@ -25,4 +25,4 @@
 >
 > <img src="./Dibujos/Aero.png" width="100%">
 >
-> > [Volver](Facción.md)
+> > [Volver](Latence.md)
