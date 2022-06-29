@@ -19,7 +19,7 @@
 > 
 > - Dato curioso: Esta loquisima por Eyfyen, yo lo sé, pero no lo vayan contando por ahí, creo que Eyfi es del tipo que friendzonea y no quiero eso para mi chikita verdesita (´；ω；｀) 
 >
->   (tampoco creo que Aero mismo esté muy conciente de ello, asi que tampoco le cuenten! no arruinen mi headcannon, quieren? >:C)
+>   (tampoco creo que Aero misma esté muy conciente de ello, asi que tampoco le cuenten! no arruinen mi headcannon, quieren? >:C)
 >
 > - representación grafica:
 >
