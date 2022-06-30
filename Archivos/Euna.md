@@ -23,4 +23,4 @@
 >
 > <img src="./Dibujos/Euna.png" width="100%">
 >
-> > [Volver](Facción.md)
+> > [Volver](Latence.md)
