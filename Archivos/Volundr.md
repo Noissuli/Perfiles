@@ -11,7 +11,7 @@
 > 
 > - Descripción física: Volundr es un hombre de piel morena, enorme, con cabello negro corto, enoooooorme, con manotas del tamaño de torsos y musculacos con musculos en los musculos, tambíen tiene una marca que sube por su brazo hasta llegar a su hombro, donde se forma una espiral. esta marca se ilumina en un tono rojizo similar al de la lava, ¿mencioné que es enorme? un verdadero especimen de lo que es tener un cuerpo mazado y macerado! (ﾉ◕ヮ◕)ﾉ*.✧ 
 > 
-> - Descripción psicológica: A Volundr no le gusta hablar mucho, y cuando lo hace, es porque considera que es importante lo que tiene que decir. Es alguien experimentado, calmado, y tiene un aire a maestro sabio de anime. aunque no se confundan! Volundr tambien puede dar malos consejos a veces! una vez me dijo que debía añadirle un sistema de autodestrucción a mis constructos por si un día se revelaban contra la humanidad, pero eso nunca va a pasar! todos sabemos que eso solo ocurre en la ficción Volundr por favor (´ε｀ )
+> - Descripción psicológica: A Volundr no le gusta hablar mucho, y cuando lo hace, es porque considera que es importante lo que tiene que decir. Es alguien experimentado, calmado, y tiene un aire a maestro sabio de anime. Aunque no se confundan! Volundr tambien puede dar malos consejos a veces! una vez me dijo que debía añadirle un sistema de autodestrucción a mis constructos por si un día se revelaban contra la humanidad, pero eso nunca va a pasar! todos sabemos que eso solo ocurre en la ficción Volundr por favor, ya, siga leyendo (´ε｀ )
 > 
 > - Vestimenta resonante: Una polera naranja, y unos shorts (que en teoría son pantalones, pero se le ven como shorts) todo un amo de la moda el Volundr 
 > 
