@@ -1,5 +1,5 @@
 ## Volundr
-> - Nombre: Volundr Gramhart (Su apellido significa "Corazón adolorido" aunque no hay muchos registros de este por ahí! tambíen puede significar "Dolor duro"! bastante interesante )
+> - Nombre: Volundr Gramhart (Su apellido significa "Corazón adolorido" aunque no hay muchos registros de este por ahí! también puede significar "Dolor duro"! bastante interesante )
 > 
 > - Edad: 73 años, es el awelito de Utopía :'3
 > 
