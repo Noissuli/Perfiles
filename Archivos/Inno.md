@@ -17,7 +17,7 @@
 > 
 > - Historia: Inno es hija de Exael, circulo de la Gula, como tal, fue entregada a la familia más cercana que tenía su madre, y fue en manos de otras personas que desarrolló su visión de mundo. Fue traida a la organización tras hacer un pacto con Adel, a quien le ofreció obedecer sus ordenes en tanto le diese la fuerza para matar a su padre-madre (Estos demonios y su genero indefinido X'D) no voy a entrar mucho en los detalles de su pasado, pero esta claro que tiene los motivos para ser como es. y espero que un día eso pueda cambiar para mejor (• ▽ •;)
 > 
-> - Dato curioso: SE ROBÓ A SEI >:'''''''''U ME LA ROBÓ ME LA ROBÓ ME LA ROBÓ Y SEI YA NO VIENE A VISITARME Y AHORA ESTOY SOLITA CON MI GATO ROBOT Y MIS ROBOTS Y NO ME LA QUIERE DEVOLVER :''''''U
+> - Dato curioso: SE ROBÓ A SEI >:'''''''''U ME LA ROBÓ ME LA ROBÓ ME LA ROBÓ Y SEI YA NO VIENE A VISITARME Y AHORA ESTOY SOLITA CON MI GATO ROBOT Y MIS ROBOTS Y NO ME LA QUIERE DEVOLVER :''''''U SEI DE LOS PERFILES SI ESTÁS LEYENDO ESTO POR FAVOR NO DEJES QUE TE ROBE TAMBÍEN!!!
 >
 > - representación grafica:
 >

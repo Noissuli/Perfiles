@@ -19,6 +19,10 @@
 > 
 > - Dato curioso: Desde que Inno ocupa su tiempo libre, Sei ya no viene tanto a visitar la fabrica de constructos ┻━┻ ヘ╰( •̀ε•́ ╰)
 >
+> - Dato curioso 2: le pertenece a [Inno](Inno.md)
+>
+> - Comentario de la moderadora: ┻┻︵ヽ(`Д´)ﾉ︵┻┻
+>
 > - representación grafica:
 >
 > <img src="./Dibujos/Sei.png" width="100%">
