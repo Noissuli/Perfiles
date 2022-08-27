@@ -23,4 +23,4 @@
 >
 > <img src="./Dibujos/Tahir.png" width="100%">
 >
-> > [Volver](Facción.md)
+> > [Volver](Retirados.md)
