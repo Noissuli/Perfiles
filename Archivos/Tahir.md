@@ -1,9 +1,9 @@
 ## 
-> - Nombre: Tahir Iskhaq (Su apellido significa "aquel que ríe", parece ser un apellido de ascendencia asiria! esto concuerda con su tendencia a reirse de los demás >:'b)
+> - Nombre: Tahir Iskhaq (Su apellido significa "aquel que ríe", parece ser un apellido de ascendencia Asiria! esto concuerda con su tendencia a reirse de los demás >:'b)
 > 
 > - Edad: 143 años! fresco como una lechuga! (Sus arrugas pueden parecer como si su cara fuera una desde la perspectiva correcta!) 
 > 
-> - Altura: 1.44, Por algún motivo, se volvío mas chikito a medida que envejeció. a su ritmo de encogecimiento, calculo que dentro de otros 950 años aproximadamente, Tahir será de un solo centimetro! ヾ(\*’Ｏ’\*)/ Aquello que ocurra cuando su altura sea negativa significará un cambio en la ciencia como la conocemos! confío en que un día, gracias a Tahir, podremos demostrar la existencia de la materia negra (ﾉ◕ヮ◕)ﾉ*.✧ (Se que no estás leyendo esto Tahir, pero sigue así!)
+> - Altura: 1.44, Por algún motivo, se volvío mas chikito a medida que envejeció. A su ritmo de encogecimiento, calculo que dentro de otros 950 años aproximadamente, Tahir será de un solo centimetro! ヾ(\*’Ｏ’\*)/ Aquello que ocurra cuando su altura sea negativa significará un cambio en la ciencia como la conocemos! confío en que un día, gracias a Tahir, podremos demostrar la existencia de la materia negra (ﾉ◕ヮ◕)ﾉ*.✧ (Se que no estás leyendo esto Tahir, pero sigue así!)
 > 
 > - Peso: No sé, no lo puedo pesar por telefono y él no se quiso pesar >:C pero ya que solo podemos imaginarnoslo, imaginemos que pesa como unos 230 kilogramos
 > 
