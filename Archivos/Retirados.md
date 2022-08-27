@@ -1,4 +1,4 @@
 # Trascendentes retirados >:0
 
-- - [Aero](Aero.md)
+- - [Tahir](Tahir.md)
 - [Volver](../README.md)
