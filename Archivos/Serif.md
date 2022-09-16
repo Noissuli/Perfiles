@@ -20,7 +20,7 @@
 >
 > - Dato curioso: Cuando era más joven, las leyendas dicen que era todo un don juan (☞ﾟヮﾟ)☞
 >
-> - representación grafica: (Como lucía como un sujeto con ojeras cualquiera pensé que sería muy aburrido y lo dibujé llendo de pesca)
+> - representación grafica: (Como lucía muy aburrido lo dibujé llendo de pesca)
 >
 > <img src="./Dibujos/Serif.png" width="100%">
 >
