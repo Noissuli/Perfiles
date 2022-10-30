@@ -24,6 +24,6 @@
 >
 > - representación grafica:
 >
-> <img src="./Dibujos/.png" width="100%">
+> <img src="./Dibujos/Lily.png" width="100%">
 >
 > > [Volver](Utopía.md)
