@@ -23,6 +23,6 @@
 >
 > - representación grafica:
 >
-> <img src="./Dibujos/.png" width="100%">
+> <img src="./Dibujos/Rosemary.png" width="100%">
 >
 > > [Volver](Alice.md)
