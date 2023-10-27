@@ -7,7 +7,7 @@
 > 
 > - Peso: 87 kilos bien escamados
 > 
-> - Raza: Semi-demonio de los escamosos (Denominados variante pescado flamenante por la todapoderosa Edmond ヘ(￣ω￣ヘ))
+> - Raza: Semi-demonio de los escamosos (Denominados variante pesc[a](Shanrot-pescao.md)do flamenante por la todapoderosa Edmond ヘ(￣ω￣ヘ))
 > 
 > - Descripción física: Chico de complexión robusta, con espalda ancha, brazos escamosos gigaaaaaaantes de color bermellón y pelitos de color anaranjado claro entre las escamas! (Al principio dejan una fuerte impresión, pero si pasas mucho tiempo con él, dejas de notarlos >:b) Es a la vez muy expresivo y muy poco expresivo, sus ojos son color café oscuro, y su pelo ondulado es de castaño aún mas oscuro! Llega como a la mitad de su espalda, parece dificil de peinar (• ▽ •;)
 
