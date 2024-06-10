@@ -23,4 +23,4 @@
 >
 > <img src="./Dibujos/Alma.png" width="100%">
 >
-> > [Volver](Facción.md)
+> > [Volver](SinFacción.md)
